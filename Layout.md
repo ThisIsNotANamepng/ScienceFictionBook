@@ -6,7 +6,7 @@ Books from the old era are banned, the internet is gone, but most governments ha
 
 Someone assasinates the leader, and the United States fractures, seperating into different factions still ruled in distopia.
 
-A women escapes from a colony, (Ran by a facist government), and is injured in her attempt. 
+A women escapes from a colony, (ran by a facist government), and is injured in her attempt. 
 
 She wakes up in a small cotttage by the fire. It is revealed that she was rescued by a quiet middle aged man.
 
